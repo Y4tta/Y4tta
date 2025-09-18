@@ -4,6 +4,8 @@
   </p>
 <img width="640" height="92" alt="tumblr_8f1ba5c321f29803b15f8d8c5f25887d_15d7256c_640" src="https://github.com/user-attachments/assets/bf503045-496a-44e5-a815-7c853cbfd60c" />
 
+<img width="1280" height="251" alt="tumblr_2a49b8ec219ab28e6fee20a9672d75ae_40cfee1a_1280" src="https://github.com/user-attachments/assets/672f0085-cc1a-40ce-9fea-b7f00c3d0b8c" />
+
 $${\color{pink}CandyㅤcandyㅤcaNDY,ㅤCANDYㅤFORㅤALL!!!}$$
 $${\color{blue}YOU'LLㅤNEVERㅤTAKEㅤMYㅤCANDYㅤSTASHㅤNEVEEER!!!}$$
 
@@ -17,4 +19,7 @@ $${\color{blue}YOU'LLㅤNEVERㅤTAKEㅤMYㅤCANDYㅤSTASHㅤNEVEEER!!!}$$
 
 $${\color{yellow}DidㅤIㅤdropㅤcandyㅤANYWHEREㅤinㅤtheㅤelevator?}$$
 
-<img width="1280" height="864" alt="tumblr_e96f610aeb4d4ece39fffc9f831101d1_4bed4315_1280" src="https://github.com/user-attachments/assets/bbe41e33-de11-4d0d-8096-4320f23cf7b8" />
+<img width="1280" height="120" alt="tumblr_8e8b125bdf42852061a667d09e27da28_04291dbb_1280" src="https://github.com/user-attachments/assets/d3b2d369-0392-4718-9ec7-03e460d31e78" />
+
+<img width="640" height="92" alt="Untitled166_20250919072759" src="https://github.com/user-attachments/assets/6c097475-16d6-4e6f-a34f-5f57dddc67ba" />
+
