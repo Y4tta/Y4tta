@@ -14,4 +14,5 @@ $${\color{blue}YOU'LLㅤNEVERㅤTAKEㅤMYㅤCANDYㅤSTASHㅤNEVEEER!!!}$$
 <p align="center">I'LL ADD MORE LATER ON!!! SEE YOU ALL LATER!!!</p>
 
 $${\color{yellow}DidㅤIㅤdropㅤcandyㅤANYWHEREㅤinㅤtheㅤelevator?}$$
+
 <img width="1280" height="864" alt="tumblr_e96f610aeb4d4ece39fffc9f831101d1_4bed4315_1280" src="https://github.com/user-attachments/assets/bbe41e33-de11-4d0d-8096-4320f23cf7b8" />
