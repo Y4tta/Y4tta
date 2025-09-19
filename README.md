@@ -23,3 +23,7 @@ $${\color{yellow}DidㅤIㅤdropㅤcandyㅤANYWHEREㅤinㅤtheㅤelevator?}$$
 
 <img width="640" height="92" alt="Untitled166_20250919072759" src="https://github.com/user-attachments/assets/6c097475-16d6-4e6f-a34f-5f57dddc67ba" />
 
+<!--
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=Y4tta&label=★.CANDIES&color=E8AFD8&style=flat" alt="Profile views"/>
+  </p>
