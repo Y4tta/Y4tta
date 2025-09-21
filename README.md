@@ -10,8 +10,7 @@
 </p>
 
 <p align="center">
-  <a href="https://www.tumblr.com/y4ttaa?source=share">ᥲsk 𝗍һᥱ ᥲᥴr᥆ᑲᥲ𝗍!! [𝗍ᥙmᑲᥣr]</a>
-</p>
+ ˚ ★ <a href="https://www.tumblr.com/y4ttaa?source=share">ᥲsk 𝗍һᥱ ᥲᥴr᥆ᑲᥲ𝗍!! [𝗍ᥙmᑲᥣr]</a> ★ ˚</p>
 <img width="640" height="92" alt="tumblr_8f1ba5c321f29803b15f8d8c5f25887d_15d7256c_640" src="https://github.com/user-attachments/assets/bf503045-496a-44e5-a815-7c853cbfd60c" />
 
 <img width="1280" height="251" alt="tumblr_2a49b8ec219ab28e6fee20a9672d75ae_40cfee1a_1280" src="https://github.com/user-attachments/assets/672f0085-cc1a-40ce-9fea-b7f00c3d0b8c" />
