@@ -14,10 +14,12 @@ $${\color{blue}YOU'LLㅤNEVERㅤTAKEㅤMYㅤCANDYㅤSTASHㅤNEVEEER!!!}$$
 <p align="center">HELLO HELLO HELLO!!! IM YATTA- Haha!! I'm found in docks everytime, but I can be in dw spot or dw rps! (infection or not) </p>
 <p align="center">Im alSO FOUND IN LAB RPS, IM MAINLY THE CO-HOST OF AQUATIC AMBITIONS!!!</p>
 <p align="center">I'm the creator of an upcoming BT themed lab, 7 Charms corporation!!</p>
-<p align="center">Please note that I can get very hyper and chaotic, well being a Yatta fiction kin takes a toll on me!!</p>
-<p align="center">If Im being very hyper, remIND ME!!!</p>
+<p align="center">Please note that I can get very hyper and chaotic, well being a Yatta fiction kin takes a hold on me!!</p>
+<p align="center">I can do ship rps, but only if you ask me! ship rps are reserved for friends unless you ask me for it!</p>
 
-<p align="center">I'LL ADD MORE LATER ON!!! SEE YOU ALL LATER!!!</p>
+<p align="center">I'm mostly offtab, probably on discord,watching tiktok, or looking at someone's socials for boundaries before I interact them!</p>
+
+<p align="center">𝗬𝗢𝗨 𝗔𝗥𝗘 𝗙𝗥𝗘𝗘 to cuddle!! unless if 𝗜'𝗠 in a bad mood, or uncomfortable</p>
 
 $${\color{yellow}DidㅤIㅤdropㅤcandyㅤANYWHEREㅤinㅤtheㅤelevator?}$$
 
