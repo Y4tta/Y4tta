@@ -1,9 +1,13 @@
 ![tumblr_c3cc940de521e1baabfb78fae34b05c5_fde48c92_540 gif](https://github.com/user-attachments/assets/5a42fd99-7592-45e6-b566-abc3eae0b101)
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Y4tta&label=★.CANDIES&color=E8AFD8&style=flat" alt="Profile views"/>
+  <img src="https://komarev.com/ghpvc/?username=Y4tta&label=★.CANDIES&color=E8AFD8&style=plastic" alt="Profile views"/>
   </p>
 
-### [[ASK THE ACROBAT / SIGN ATA]](https://yatta.atabook.org/) [[INTRODUCTION]](https://rentry.co/Y4TTAA)
+<p align="center">
+  <a href="https://yatta.atabook.org/">ᥡᥲ𝗍𝗍ᥲᑲ᥆᥆k</a>⠀ 🍬 ⠀
+  <a href="https://rentry.co/Y4TTAA">rᥱᥒ𝗍rᥡ</a>⠀ 🍭 ⠀
+  <a href="https://rentry.co/YATTASHOUTOUTS">sһ᥆ᥙ𝗍᥆ᥙ𝗍s</a>
+</p>
 <img width="640" height="92" alt="tumblr_8f1ba5c321f29803b15f8d8c5f25887d_15d7256c_640" src="https://github.com/user-attachments/assets/bf503045-496a-44e5-a815-7c853cbfd60c" />
 
 <img width="1280" height="251" alt="tumblr_2a49b8ec219ab28e6fee20a9672d75ae_40cfee1a_1280" src="https://github.com/user-attachments/assets/672f0085-cc1a-40ce-9fea-b7f00c3d0b8c" />
