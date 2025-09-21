@@ -1,6 +1,6 @@
 ![tumblr_c3cc940de521e1baabfb78fae34b05c5_fde48c92_540 gif](https://github.com/user-attachments/assets/5a42fd99-7592-45e6-b566-abc3eae0b101)
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Y4tta&label=★.CANDIES&color=E8AFD8&style=plastic" alt="Profile views"/>
+  <img src="https://komarev.com/ghpvc/?username=Y4tta&label=★+CANDIES&color=E8AFD8&style=plastic" alt="Profile views"/>
   </p>
 
 <p align="center">
