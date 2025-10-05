@@ -19,15 +19,14 @@ $${\color{pink}CandyㅤcandyㅤcaNDY,ㅤCANDYㅤFORㅤALL!!!}$$
 $${\color{blue}YOU'LLㅤNEVERㅤTAKEㅤMYㅤCANDYㅤSTASHㅤNEVEEER!!!}$$
 
 <p align="center">HELLO HELLO HELLO!!! IM YATTA- Haha!! I'm found in docks everytime, but I can be in dw spot or dw rps! (infection or not) </p>
-<p align="center">Im AlSO found IN Lab Rps, IM MAINLY THE CO-HOST OF AQUATIC AMBITIONS!!!</p>
-<p align="center">I'm the creator of an upcoming BT themed lab, 7 Charms corporation!!</p>
+<p align="center">Im AlSO found IN Lab Rps, IM MAINLY THE CO-HOST OF AQUATIC AMBITIONS!!! And the creator of an upcoming lab, 7 Charms Corporation!</p>
+<p align="center">If I'm not responding strangely, either it's bad wifi or I fell asleep</p>
 <p align="center">Please note that I can get very hyper and chaotic, well being a Yatta fiction kin takes a hold on me!!</p>
 <p align="center">I can do ship rps, but only if you ask me! ship rps are reserved for friends unless you ask me for it!</p>
-
 <p align="center">I'm mostly offtab, probably on discord,watching tiktok, or looking at someone's socials for boundaries before I interact them!</p>
-
 <p align="center">𝗬𝗢𝗨 𝗔𝗥𝗘 𝗙𝗥𝗘𝗘 to cuddle!! unless if 𝗜'𝗠 in a bad mood, or uncomfortable</p>
-
+<p align="center">I am a person who yaps a lot... I don't think straight before speaking that out loud... which makes people get triggered and uncomfy... you'll never see me speak when interact...</p>
+  
 $${\color{yellow}DidㅤIㅤdropㅤcandyㅤANYWHEREㅤinㅤtheㅤelevator?}$$
 
 <img width="1280" height="120" alt="tumblr_8e8b125bdf42852061a667d09e27da28_04291dbb_1280" src="https://github.com/user-attachments/assets/d3b2d369-0392-4718-9ec7-03e460d31e78" />
